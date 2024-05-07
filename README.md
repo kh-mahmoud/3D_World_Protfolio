@@ -3,6 +3,6 @@
  
 ![app_screen](https://github.com/kh-mahmoud/3D_World_Protfolio/assets/97807779/f562a9d5-6c64-4f5a-bdba-ca685a8953b4)
 
-what are you waitin for 🌟 Dive into this amazing experience with us and witness the future of digital creativity unfold before your eyes. 🚀✨ <br/>
+what are you waiting for 🌟 Dive into this amazing experience with us and witness the future of digital creativity unfold before your eyes. 🚀✨ <br/>
 
 feel free to join us using the link: https://3-d-world-protfolio.vercel.app
